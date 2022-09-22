@@ -5,7 +5,7 @@
 
 - 💬 Me pergunte sobre **Excel e Python**
 
-- 📫 Você me acha através do e-mail **viictor.alves@outlook.com**
+- 📫 Você me achar através do e-mail **viictor.alves@outlook.com**
 
 
 
